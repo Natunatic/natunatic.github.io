@@ -4,6 +4,8 @@
 
 • Añadir estilos CSS 
 • Añadir pagina sobre juegos
+• Hacer la pagina PHP o Wordpress
+• pinches viejas putas
 
 ## Baja prioridad
 
